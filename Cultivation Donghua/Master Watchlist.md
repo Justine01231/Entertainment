@@ -1,0 +1,55 @@
+# 🌌 Cultivation Donghua Master Watchlist
+
+## 📺 Watching
+- [[Martial Peak]] #watching [[Youku]]
+- [[Martial Universe]] #watching [[Youku]]
+- [[Battle Through the Heavens]] #watching [[Tencent]]
+
+## 📝 Planning
+- [[The Great Ruler]] #planning [[Tencent]]
+- [[The Destiny Ruler]] #planning [[Tencent]]
+- [[The Charm of the Soul Pet]] #planning [[Bilibili]]
+- [[Sword of Comings]] #planning [[Bilibili]]
+- [[Stellar Transformation]] #planning [[Tencent]]
+- [[Shrouding the Heavens]] #planning [[Youku]]
+- [[Renegade Immortal]] #planning [[Bilibili]]
+- [[Peerless Battle Spirit]] #planning [[Bilibili]]
+- [[Over Goddess]] #planning [[Youku]]
+- [[Martial Master]] #planning [[Youku]]
+- [[Lord of All Realms]] #planning [[Youku]]
+- [[Legend of Xianwu]] #planning [[Bilibili]]
+- [[Divine Lord of Heaven]] #planning [[Youku]]
+- [[Apotheosis]] #planning [[Tencent]]
+- [[Against the Sky Supreme]] #planning [[Bilibili]]
+- [[A Record of a Mortals Journey]] #planning [[Youku]]
+- [[Zhu Tian - Return of Gods]] #planning [[Bilibili]]
+- [[Tomb of Fallen Gods]] #planning [[Youku]]
+- [[The Tale of Spirit Stone]] #planning [[Bilibili]]
+- [[The Success of Empyrean]] #planning [[Bilibili]]
+- [[The Rich God]] #planning [[Youku]]
+- [[The Peak of True Martial Arts]] #planning [[Bilibili]]
+- [[The Magic Chef of Ice and Fire]] #planning [[Tencent]]
+- [[The Legend of Sword Domain]] #planning [[Bilibili]]
+- [[Tales of Dark Galaxy]] #planning [[Bilibili]]
+- [[Rise of the True Dragon]] #planning [[Tencent]]
+- [[Leveling Up in a Fantasy World]] #planning [[Bilibili]]
+- [[Everlasting God Sword]] #planning [[Bilibili]]
+- [[Throne of Seal]] #planning [[Tencent]]
+- [[Ten Thousand World]] #planning [[Tencent]]
+- [[Tales of Demons and Gods]] #planning [[Tencent]]
+- [[Supreme God Emperor]] #planning [[Bilibili]]
+- [[Spirit God Emperor]] #planning [[Bilibili]]
+- [[Spirit Sword Sovereign]] #planning [[Bilibili]]
+- [[Martial God Asura]] #planning [[Bilibili]]
+- [[Jade Dynasty]] #planning [[Tencent]]
+- [[Swallows Star]] #planning [[Tencent]]
+- [[The Legend of Sword Domain]] #planning [[Bilibili]]
+
+## ✅ Completed
+- [[Soul Land]] #completed [[Tencent]]
+- [[Perfect World]] #completed [[Tencent]]
+
+## ⛔ Dropped or Discontinued
+- [[Tale of Herding Gods]] #dropped [[Dropped or Discontinued]]
+- [[Bricks of Heaven]] #dropped [[Dropped or Discontinued]]
+
